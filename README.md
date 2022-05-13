@@ -1,1 +1,1 @@
-Hi folks! I'm Shubham. I'm currently learning ML.
+Hi folks! I'm Shubham. Not much. Just honest stuff.
